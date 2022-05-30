@@ -1,0 +1,3 @@
+- beginner programmer
+- javascript/python/html
+- contact me on discord: pistol no. 2#9481
